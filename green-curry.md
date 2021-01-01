@@ -32,7 +32,6 @@
   - slice cilantro root and galangal into small pieces
   - slice kaffir lime peel from fruit
   - discard top halves of lemongrass and slice bottom half thinly
-  - 
 - ideally pound paste ingredients in mortal and pestle, otherwise blend in a food processor until smooth
 - add water to pot along with all curry paste and chicken pieces and boil 10 mins
 - add coconut cream and bring back to a boil

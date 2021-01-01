@@ -23,3 +23,4 @@
 - add chicken and stir fry 2-3 minutes until just cooked (add a splash of water if needed)
 - add oyster sauce, sugar, light and dark soy sauce, fry another 20 seconds
 - add basil to pan and serve immediately 
+- fry egg and put on top
