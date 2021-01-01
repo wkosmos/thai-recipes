@@ -20,4 +20,9 @@
 - 10 g garlic
 - 5 g shrimp paste
 
+# Method
+- remove seeds from red chillies, soak in water at leats 10 mins, and finely chop
+- roast coriander, cumin, mace, green chillies, and cardamom until brown
+- 
+
 
